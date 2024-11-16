@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Data
 - 📫 How to reach me https://www.linkedin.com/in/artsbyrne/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I like to plan ahead folding my clothes. Have a collection of 20+ different shirts. Meaning I will know what I want to wear for two weeks. Even on trips I like think ahead and plan. Less to think about and set up myself for success.
+- ⚡ Fun fact: I like to plan ahead like folding my clothes and orgainizing them so I'm not think last minute. I just put on clothes laid out. I have a collection of 20+ different shirts. I will know what I want to wear for next two weeks. Even on trips I like think ahead and plan like this.
 
 <!---
 analystedwin/analystedwin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
